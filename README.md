@@ -15,7 +15,7 @@
   ︶ <a href="https://en.pronouns.page/@voidroidz">prns</a> 𖥔
   <a href="https://voidroidz.atabook.org/">atabook</a> 𖥔
   <a href="https://epicsblog.straw.page/">strwpg</a> 𖥔
-  <a href="https://www.instagram.com/voidroids?igsh=MTh5bXY5d2Zya3hncg==">instgrm</a> ︶ ⊹
+  <a href="https://www.instagram.com/voidr.oid?igsh=MWN4dWlkZjgyaWtqeg==">instgrm</a> ︶ ⊹
 </p>
 <p>
   <p align="center">
