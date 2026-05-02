@@ -1,7 +1,7 @@
 </p>
 <p>
   <p align="center">
-<img width="99" height="56" alt="Image" src="https://media.tenor.com/Eu3tNtgbeK0AAAAi/spamtenna-spamton.gif" /> <img width="99" height="56" alt="Image" src="https://media.tenor.com/Eu3tNtgbeK0AAAAi/spamtenna-spamton.gif" /> <img width="99" height="56" alt="Image" src="https://media.tenor.com/Eu3tNtgbeK0AAAAi/spamtenna-spamton.gif" /> <img width="99" height="56" alt="Image" src="https://media.tenor.com/Eu3tNtgbeK0AAAAi/spamtenna-spamton.gif" /> <img width="99" height="56" alt="Image" src="https://media.tenor.com/Eu3tNtgbeK0AAAAi/spamtenna-spamton.gif" /> <img width="99" height="56" alt="Image" src="https://media.tenor.com/Eu3tNtgbeK0AAAAi/spamtenna-spamton.gif" /> 
+<img width="600" height="240" alt="Image" src="https://camo.githubusercontent.com/58e3fae0da00cf6915818c6ffb591508f8df9e0c4c7c3851b29942405a8689cc/68747470733a2f2f73322e657a6769662e636f6d2f746d702f657a6769662d323166333235343239613365306332352e676966" /> 
   </p>
   </p>
 <p align="center">
@@ -12,8 +12,7 @@
   </p>
   </p>
 <p align="center">
-  ︶ <a href="https://en.pronouns.page/@voidroidz">prns</a> 𖥔
-  <a href="https://voidroidz.atabook.org/">atabook</a> 𖥔
+  ︶ <a href="https://voidroidz.atabook.org/">atabook</a> 𖥔
   <a href="https://epicsblog.straw.page/">strwpg</a> 𖥔
   <a href="https://www.instagram.com/voidr.oid?igsh=MWN4dWlkZjgyaWtqeg==">instgrm</a> ︶ ⊹
 </p>
@@ -25,4 +24,3 @@
   
   ![Image](https://media.tenor.com/x-ug-OzMcioAAAAi/tenna-deltarune.gif)
 <div align="center">
-<img width="99" height="56" alt="Image" src="https://64.media.tumblr.com/18ba0607fd8add314b4f1c5eecde4238/b26f07826e5fbfbd-c5/s400x600/45c99bd15c4d4f3c2c30f84a8f70431acc74ed0a.pnj" /> 
