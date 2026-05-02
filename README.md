@@ -1,7 +1,7 @@
 </p>
 <p>
   <p align="center">
-<img width="600" height="150" alt="Image" src="https://camo.githubusercontent.com/58e3fae0da00cf6915818c6ffb591508f8df9e0c4c7c3851b29942405a8689cc/68747470733a2f2f73322e657a6769662e636f6d2f746d702f657a6769662d323166333235343239613365306332352e676966" /> 
+<img width="600" height="240" alt="Image" src="https://i.imgur.com/jiPb9rh.png" /> 
   </p>
   </p>
 <p align="center">
