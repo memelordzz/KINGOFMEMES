@@ -22,5 +22,5 @@
   </p>
 <div align="center">
   
-  ![Image](https://media.tenor.com/x-ug-OzMcioAAAAi/tenna-deltarune.gif)
+  <img src="https://dividers.crd.co/assets/images/gallery10/4dc7da57.gif?v=05d33f91" /> 
 <div align="center">
